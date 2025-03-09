@@ -1,2 +1,2 @@
-Click "Issues" right above here, then "Daily Stuff" and read/comment if you're bored and want to!  
+Click "Issues" right above here, then "Daily Stuff 2.0" and join the yap session
 -----------------------------------------------------------------------------------------
